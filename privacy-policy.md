@@ -44,7 +44,7 @@ This Privacy Policy may be updated periodically. Continued use of the Skill afte
 
 8. Contact Information
 
-For questions about this Privacy Policy, please contact: arthurmonjarass@gmail.com
+For questions about this Privacy Policy, please contact: 
 
-[Your Name]
-[Your Email Address]
+Arturo Monjaras
+arthurmonjarass@gmail.com
